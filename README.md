@@ -1,5 +1,5 @@
 <p align="center">
-Midna's Lament 
+I'm chopped and lame why do i even play this game wait #bars 
 </p>
 <p align="center"> 
   <img src="https://i.pinimg.com/originals/fc/bf/56/fcbf5678666e74a7bb7534b6592e1327.gif"
