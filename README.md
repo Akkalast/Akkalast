@@ -5,7 +5,7 @@ I'm chopped and lame why do i even play this game wait #bars
   <img src="https://i.pinimg.com/originals/fc/bf/56/fcbf5678666e74a7bb7534b6592e1327.gif"
 </p>
 <div align="center">
-  <a href="https://necluda.straw.page" target="_blank">strawpage</a> >⩊< <a href="https://pronouns.cc/@lanayru" target="_blank">pronouns</a><br> 
+  <a href="https://necluda.straw.page" target="_blank">strawpage</a> >⩊< <a href="https://dinraal.atabook.org" target="_blank">atabook</a><br> 
   be nice to me <br>
     FYI i'm blasian and like to project that onto my favs in fiction <br>
     so if u have a problem u can leave me alone ok <br>
